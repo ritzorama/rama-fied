@@ -1,2 +1,6 @@
 # rama-fied
-![Uploading golden-autumn-dawn-stockcake.jpg…]()
+![Autumn-dawn-stockcake.jpg…]()
+
+ For this life
+ 
+
